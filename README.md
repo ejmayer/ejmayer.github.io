@@ -1,2 +1,2 @@
-# jeneric1023.github.io
+# ejmayer.github.io
 Eric Mayer Bio Page
